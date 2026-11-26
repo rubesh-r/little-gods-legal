@@ -66,4 +66,4 @@ We may update these Terms from time to time. We will post the updated Terms at t
 
 ## 14. Contact us
 **Rubesh R**  
-Contact: [open a message on GitHub](https://github.com/rubesh-r/little-gods-legal/issues) (messages there are public, so please do not include personal details)
+Email: [memep8384@gmail.com](mailto:memep8384@gmail.com)

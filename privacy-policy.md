@@ -112,4 +112,4 @@ We may update this policy when the App changes, for example when the optional se
 If you have questions about this Privacy Policy or the App:
 
 **Rubesh R**  
-Contact: [open a message on GitHub](https://github.com/rubesh-r/little-gods-legal/issues) (messages there are public, so please do not include personal details)
+Email: [memep8384@gmail.com](mailto:memep8384@gmail.com)
